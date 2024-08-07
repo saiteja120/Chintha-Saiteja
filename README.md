@@ -1,1 +1,1 @@
-# Chintha-Saiteja
+# Chintha Saiteja
